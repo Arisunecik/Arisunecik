@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Arisunecik
+- 📫 How to reach me Discord: Arisune#1337
